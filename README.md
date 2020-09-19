@@ -1,0 +1,2 @@
+# ovifilosofi
+Ovi’s filosoferinger
